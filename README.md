@@ -1,0 +1,1 @@
+# kursach_bez_grafiki
